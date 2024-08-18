@@ -1,3 +1,3 @@
-🐍Python developer. Can speak English and Russian. 
+🐍Python and JS developer. Can speak English and Russian. 
 
-📞Contact — https://t.me/the_sloth_bear
+📞Contact — https://t.me/slbear
